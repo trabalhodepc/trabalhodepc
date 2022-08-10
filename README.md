@@ -4,7 +4,7 @@ ola somos estudantes!!!
 
 🤔-somos fofoqueiros
 
-😄-somos inteliogentes 
+😄-somos inteligentes 
 
 ⚡-sou bastantes dedicados nas aulas com o professor idalberto:D
 
